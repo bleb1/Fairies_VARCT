@@ -9,3 +9,7 @@ https://docs.google.com/document/d/1znFp1YsF0RxcWHDtyGt06Y7T2Y9qLiOk/edit?usp=sh
 Ссылка на видео из ксп:
 
 
+Ссылка на презентацию:
+
+
+Ссылка на отчёт:
