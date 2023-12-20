@@ -7,7 +7,7 @@ https://docs.google.com/document/d/1znFp1YsF0RxcWHDtyGt06Y7T2Y9qLiOk/edit?usp=sh
 
 
 Ссылка на видео из ксп:
-
+https://www.youtube.com/watch?v=0jnSHnIvFzc
 
 Ссылка на презентацию:
 
