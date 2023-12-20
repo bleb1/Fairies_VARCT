@@ -13,3 +13,4 @@ https://docs.google.com/document/d/1znFp1YsF0RxcWHDtyGt06Y7T2Y9qLiOk/edit?usp=sh
 
 
 Ссылка на отчёт:
+https://docs.google.com/document/d/1Ow7htESQ0I-in152WJPq2Q_kgl5-ar6C9pBTO95j8go/edit
